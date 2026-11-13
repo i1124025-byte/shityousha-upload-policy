@@ -1,0 +1,1 @@
+# shityousha-upload-policy
